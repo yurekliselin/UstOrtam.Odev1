@@ -1,0 +1,1 @@
+# UstOrtam.Odev1
